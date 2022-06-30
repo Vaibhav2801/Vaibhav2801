@@ -4,7 +4,7 @@
 - 📫 How to reach me **vaibhavgrg0128@gmail.com**
 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=agrajagrawal&label=Profile%20views&color=0e75b6&style=flat" alt="agrajagrawal" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=Vaibhav2801&label=Profile%20views&color=0e75b6&style=flat" alt="VaibhavGarg" /> </p>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
